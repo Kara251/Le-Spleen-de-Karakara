@@ -3,7 +3,7 @@
 
 ------
 
-**[《You're My Princess》](https://kivo.wiki/music/737)**应该是我听过最应景最美妙的记忆大厅BGM了，而且还是Mika的专属音乐。
+[**《You're My Princess》**](https://kivo.wiki/music/737)应该是我听过最应景最美妙的记忆大厅BGM了，而且还是Mika的专属音乐。
 
 伴着钢琴与电子器乐，在夜空下与“我的公主”对视。
 
