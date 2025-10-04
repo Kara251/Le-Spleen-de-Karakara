@@ -1,6 +1,6 @@
 # Le-Spleen-de-Karakara[^1]
 
-[^1]: *Le Spleen de Kivotos*, form Game Blue Archive character *Ushio Noa*, and it's origin
+[^1]: *Le Spleen de Kivotos*, from Game Blue Archive character *Ushio Noa*, and it's origin
 work named *Le Spleen de Paris*.
 
 ℕ𝕠𝕥𝕖𝕓𝕠𝕠𝕜 𝕠𝕗 𝔼𝕧𝕖𝕣𝕪𝕥𝕙𝕚𝕟𝕘
